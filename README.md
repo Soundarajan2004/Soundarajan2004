@@ -1,7 +1,6 @@
 ## Hi there 👋 it's me Soundarajan S.R
 
-
-Computer Science Enginnering Student
+Information Technology Student
 
 
 
