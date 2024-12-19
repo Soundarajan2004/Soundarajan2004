@@ -1,4 +1,4 @@
-## Hi there 👋 it's me Soundhareshwaran S.R
+## Hi there 👋 it's me Soundarajan S.R
 
 
 Computer Science Enginnering Student
